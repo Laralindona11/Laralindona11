@@ -9,4 +9,4 @@ sou estudante da [Alura](https://www.alura.com.br)
 ramos.luz.lara@escola.pr.gov.br
 
 
-![](https://i.gifer.com/XOsX.gif)
+![](https://media1.tenor.com/m/XNYXr6rL2o8AAAAC/duck.gif)
